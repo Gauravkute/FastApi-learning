@@ -1,1 +1,1 @@
-## Learning this from the legend himself CampuX ##
+## Learning this from the legend himself CampusX ##
